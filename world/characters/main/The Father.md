@@ -278,3 +278,6 @@ Fight Back (NEFFEX)، Believer + Natural (Imagine Dragons)، Lose Yourself (Emin
 ---
 
 **انتهى دفتر الأب الشامل. هذا هو المرجع النهائي لشخصية ميموريس (ثايديس).**
+---
+AI Prompt: 
+A towering, immensely tall and slender muscular man, 290cm in height, with a perfectly proportioned, shredded physique that is visible yet elegant, not bulky. He has short, coarse, jet-black hair with faint white streaks at the temples and a light rough stubble. He wears large, round, pitch-black opaque glasses connected by a thin iron chain that wraps around his neck. He is dressed in a classic, all-black three-piece suit with a very long, dramatic black overcoat draped over his broad shoulders like a cape. His expression is stoic, calm, and unreadable, radiating an aura of silent, overwhelming authority and hidden power. He is standing in front of a warm, cozy-looking cottage in a fantasy village at dusk. Moody, cinematic lighting. Photorealistic style.
